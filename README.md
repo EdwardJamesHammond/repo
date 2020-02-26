@@ -11,3 +11,7 @@ Very well then. We're preparred to start another thrilling day of whatever whate
 Any questions? 
 
 Loop loop loop loop loop loop loop loop
+
+Perverse behavior incoming. 
+
+LOOP LOOP LOOP LOOP`
