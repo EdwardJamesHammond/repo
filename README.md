@@ -15,3 +15,5 @@ Loop loop loop loop loop loop loop loop
 Perverse behavior incoming. 
 
 LOOP LOOP LOOP LOOP`
+
+"Navidi's mustache makes Aidan's girl dry" - Aurora Borghi, 2020
